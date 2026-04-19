@@ -3,7 +3,7 @@
 
 **Curso:** Innovación y Transformación Digital  
 **Universidad:** Universidad Tecnológica del Perú — UTP Piura  
-**Fecha:** Abril 2026
+**Fecha:** Abril 2026...
 
 ---
 
